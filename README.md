@@ -35,17 +35,11 @@ https://x.com/97baoliaowang
 
 ### 官方 Telegram 群 / Official Telegram Group
 
-https://t.me/baoliaowang970
-
-## 📦 Telegram 资源 & 社群 | Telegram Resources & Community
-
-### 官方 TG 资源频道 | Official Resource Channel
-
-https://telegram.me/cgcg_91---
+https://t.me/baoliaowang9701
 
 ### 官方 TG 活跃交流群 | Active Community Group
 
-https://telegram.me/jycg_91
+https://t.me/baoliaowang970
 
 ## 🔁 最新地址获取方式（推荐） | How to Get the Latest Address (Recommended)
 
