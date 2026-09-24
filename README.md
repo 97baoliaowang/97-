@@ -13,7 +13,7 @@ This GitHub profile is maintained to publish the latest working links, official 
 
 ### ✅ 免翻墙入口 | No VPN Required
 
-https://97bl4.com/
+https://97bl5.com/
 
 ### 🌍 永久入口（需翻墙） | Permanent Access (VPN Required)
 
