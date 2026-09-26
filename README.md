@@ -1,6 +1,6 @@
 # 97爆料网｜97Baoliao Official Links & Latest Address
 
-📅 Updated: 2026-9-24
+📅 Updated: 2026-9-26
 
 🔥 97爆料网官方最新地址 & 导航页 | 97Baoliao Official Access Page
 
@@ -13,7 +13,7 @@ This GitHub profile is maintained to publish the latest working links, official 
 
 ### ✅ 免翻墙入口 | No VPN Required
 
-https://97bl5.com/
+https://97bl8.com/
 
 ### 🌍 永久入口（需翻墙） | Permanent Access (VPN Required)
 
